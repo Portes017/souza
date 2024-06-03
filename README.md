@@ -8,9 +8,7 @@ Meu nome é Thiago Portes
 
 Você pode entrar em contato comigo :mailbox
 
-00001105282168sp@al.educacao.sp.gov.br
+00001105282168sp@al.educacao.sp.gov.br 
 
-@marcelopaludetto
+![](https://tenor.com/pt-BR/view/troll-face-meme-trololo-cursed-gif-21288173)
 
-![descrição do GIF](https://tenor.com/pt-BR/view/troll-face-meme-trololo-cursed-gif-21288173)
-# souza
