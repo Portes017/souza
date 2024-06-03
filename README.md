@@ -11,6 +11,6 @@ Você pode entrar em contato comigo :mailbox
 00001105282168sp@al.educacao.sp.gov.br 
 
 ![](https://tenor.com/pt-BR/view/kratos-gif-26437511
-):atom:
+)
 
  
