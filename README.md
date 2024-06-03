@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 🖤
+Boas vindas ao meu perfil 🖤
 
 Meu nome é Thiago Portes
 
@@ -10,5 +10,6 @@ Você pode entrar em contato comigo :mailbox
 
 00001105282168sp@al.educacao.sp.gov.br 
 
-![](https://tenor.com/pt-BR/view/troll-face-meme-trololo-cursed-gif-21288173)
+![](https://tenor.com/pt-BR/view/troll-face-meme-trololo-cursed-gif-21288173
+):atom: 
 
